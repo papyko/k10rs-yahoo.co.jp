@@ -1,0 +1,1 @@
+# k10rs-yahoo.co.jp
